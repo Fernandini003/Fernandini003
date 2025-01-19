@@ -1,5 +1,5 @@
 # 💫 About Me:
-Tengo 21 años, Me llamo Fernando y tengo como objetivo y contribuir al desarrollo de productos digitales <br>que mejoren la vida de las personas. Me considero una persona proactiva, creativa y con una gran capacidad de adaptación.<br> Estoy constantemente buscando nuevos desafíos y oportunidades de aprendizaje.
+Tengo 21 años, Me llamo Fernando y tengo como objetivo  contribuir al desarrollo de productos digitales <br>que mejoren la vida de las personas. Me considero una persona proactiva, creativa y con una gran capacidad de adaptación.<br> Estoy constantemente buscando nuevos desafíos y oportunidades de aprendizaje.
 
 
 ## 🌐 Socials:
